@@ -1,5 +1,5 @@
-#PROFE NO ME REPRUEBE
-####(*Para probar antes del examen*)
+<h2>PROFE NO ME REPRUEBE</h2>
+<h4>Profe deme puntos extra :"v</h3>
 #### NO quiero reprobar v:
 - QUIERO CARREAR
 - PROFE
