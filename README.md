@@ -1,5 +1,7 @@
 #PROFE NO ME REPRUEBE
 ####*Para probar antes del examen*
+#### NO quiero reprobar v:::::
+### en primer ciclo no ooo v: 
 - QUIERO CARREAR
 - PROFE
 - PARA NAVIDA SU PANETON 
